@@ -1,3 +1,7 @@
-# research-methods.project_outline
+# Project outline
 
-## ss
+## General information
+
+## Background information
+## Research question & Hypothesis
+## Method
