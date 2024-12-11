@@ -1,7 +1,10 @@
 # Project outline
 
-## General information
-
-## Background information
-## Research question & Hypothesis
-## Method
+### General information
+I will be researching (*#@^@#*&^$*(@(@#)(*#($*@$(@#&$&*(@&*$@#&. I will be looking at 6342732543245
+### Background information
+studies & links
+### Research question & Hypothesis
+hola
+### Method
+zzz
